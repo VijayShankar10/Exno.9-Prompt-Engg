@@ -52,13 +52,3 @@ https://github.com/user-attachments/assets/e35fe303-8c3a-45d1-aea3-471a52859ffa
 https://github.com/user-attachments/assets/f10b2588-0430-4270-bbff-a90ab323fcd7
 
 
-
-
-
-
-
-
-
-
-# Result:
-
